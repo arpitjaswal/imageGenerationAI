@@ -7,4 +7,4 @@ https://user-images.githubusercontent.com/84593373/227716982-dd142a06-75f9-4852-
 
 # Contact
 
-* [arpitrary](https://https://twitter.com/arpitwts/)
+* [arpitrary](https://twitter.com/arpitwts/)
